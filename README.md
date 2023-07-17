@@ -1,1 +1,0 @@
-# Ejercicio-prueba-examen
